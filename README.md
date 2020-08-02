@@ -40,7 +40,7 @@ So the solution was : we bring our pocket money together and bought a universal 
 #### TL;DR
 Ex-TV-holic
 
-[<<previous]() || Léa Dalibard || [next >>]()
+[<<previous](https://github.com/MonoraxXiV/markdown-challenge.git) || Léa Dalibard || [next >>](https://github.com/MatthiasNijskens/markdown-challenge.git)
 
 
 
