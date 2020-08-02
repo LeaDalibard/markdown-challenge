@@ -32,5 +32,17 @@ Also I am a very good listener (even for bad jokes go ahead ;) )
 
 ### A funny story :
 
+It's actually also kind of a sad story..
+As kids, my sister, my brother and me were super addicted to TV. 
+From out of school to sleeping time, we would basically be in front of TV (doing our homeworks in the same time, switch to catch-up another program during publicities..). Then when we were punished, the punition was obviously no-TV and my father would take the remote control to his work (since when he hid it, we would search and find it..).
+So the solution was : we bring our pocket money together and bought a universal remote control.
+
+#### TL;DR
+Ex-TV-holic
+
+[<<previous]() || Léa Dalibard || [next >>]()
+
+
+
 
 
